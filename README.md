@@ -1,2 +1,2 @@
 # cjob
-ofrre d'emploi diffusé au abonnées du 98025
+ofrre d'emploi diffusé aux abonnées du 98025
